@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to sleep more comfortable
 - 💞️ I’m looking to collaborate on bed or pillow
 - 📫 How to reach me Maybe by Dream
-- 😄 Pronouns: The King of sleeping 
+- 😄 Pronouns: The King of Sleeping!!! 
 - ⚡ Fun fact: No dream~
 
 <!---
